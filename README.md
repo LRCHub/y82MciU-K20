@@ -1,0 +1,35 @@
+# Eyedress – Romantic Lover
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:05.36] She's a killer
+[00:07.72] Looking at ya
+[00:10.63] She's my type
+[00:13.45] Very nice to meet ya
+[00:23.45] 
+[00:16.20] She's a killer
+[00:18.91] One look is all it takes
+[00:21.94] She's a killer
+[00:24.30] And she took my breath away
+[00:37.80] 
+[00:26.74] She's a killer
+[00:28.72] Romantic lover
+[00:31.57] There is no other
+[00:33.91] She is my lover
+[00:41.41] 
+[00:36.53] I need her
+[00:39.23] I gotta see her
+[00:41.73] Pullin' up on you girl
+[00:44.51] Very nice to meet ya
+[00:54.51] 
+[00:57.54] She's a killer
+[01:00.58] I love her features
+[01:02.90] A perfect picture
+[01:05.18] Very nice to meet ya
+[01:15.18] 
+[01:08.48] I'm tryna see ya
+[01:10.55] I'm tryna hear ya
+[01:13.14] Yes, you're my lover
+[01:15.49] There is no other
+```
